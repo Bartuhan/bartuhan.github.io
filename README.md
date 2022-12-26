@@ -1,1 +1,0 @@
-# bartuhan.github.io
